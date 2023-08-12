@@ -11,6 +11,8 @@
 
 - 📫 How to reach me **Jhasahil6@gmail.com**
 
+- 📄 Know about my experiences [https://acrobat.adobe.com/link/review?uri=urn:aaid:scds:US:9d59bd9d-1835-4e63-acfe-8e8770a3c10c](https://acrobat.adobe.com/link/review?uri=urn:aaid:scds:US:9d59bd9d-1835-4e63-acfe-8e8770a3c10c)
+
 - ⚡ Fun fact **🎮👾 Cooking up code, savoring every byte, and leveling up in the gaming universe! An IT student with a passion for turning digital ingredients into epic experiences. Let's connect and embark on some deliciously challenging quests!**
 
 <h3 align="left">Connect with me:</h3>
